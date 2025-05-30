@@ -20,8 +20,9 @@
 
 ## Contact
 
-If you want to buy this tool, contact me via Telegram [@alexrony21](https://t.me/alexrony21). 
+If you want to buy this tool, contact me via Telegram: [@thepythoncode97](https://t.me/thepythoncode97)
 
-**Please do not contact me if you are not serious about purchasing.**
+## Note:
+This tool is designed for marketers and businesses. If you engage in any illegal activities using this tool, the author will not take any responsibility.
 
 Thank you!
